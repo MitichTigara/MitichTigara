@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+### ⚡ Fun fact mn sum lud s githuba :D
 <!--
 **MitichTigara/MitichTigara** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
